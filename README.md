@@ -50,6 +50,6 @@ GNU General Public License v3.0
 
 ---
 
-> Telegram [Me](https://www.amitmerchant.com) &nbsp;&middot;&nbsp;
+> Telegram [Me](t.me/chill_vibez) &nbsp;&middot;&nbsp;
 > Twitter [Me](https://twitter.com/DawitSharon_)
 
